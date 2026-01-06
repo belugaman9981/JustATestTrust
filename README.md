@@ -1,1 +1,1 @@
-# JustATestTrust!
+# Just A Test Trust
